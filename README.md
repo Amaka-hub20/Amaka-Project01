@@ -1,1 +1,1 @@
-This is an out of social media 
+This is an output of social media 
